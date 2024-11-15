@@ -6,5 +6,5 @@
 
 ⭐️ All *Credits* To *@amlrparsa* (*Telegram*) 
 
-![image](https://github.com/user-attachments/assets/58f53145-53b5-4e1b-b58e-f3b625c11846)
+![image](https://github.com/user-attachments/assets/631a72e2-556f-4f5b-a9c6-5e9811ea193e)
 
